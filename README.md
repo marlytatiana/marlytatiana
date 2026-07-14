@@ -1,6 +1,5 @@
 ### 
 
+I am an applied microeconomist with a background in program evaluation and evidence-based policy design. My research interest are public economics and applied industrial organization. I have experience in the Colombian public sector, where I worked at the National Planning Department Colombia, District Planning Secretariat of the City of Bogota, think tank CRECE, and Universidad de Manizales.
 
-I'm Marly Tatiana Celis Galvez, PhD candidate at Utrecht School of Economics in The Netherlands https://www.uu.nl/staff/MTCelisGalvez. I'm also a member of the Utrecht University Centre for Public Procurement (UUcePP) https://www.uu.nl/en/background/interview-marly-tatiana-celis-galvez
-
-I worked at Colombia’s National Planning Department, Regional Research Center CRECE, Manizales University (Colombia). My previous work can be checked here https://sites.google.com/view/marly-tatiana-celis-galvez/home
+My doctoral disseration Essays on Empirical Economics of Public Procurement: Drivers of Efficiency and Effectiveness focuses on public procurement markets.
